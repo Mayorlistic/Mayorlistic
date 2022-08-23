@@ -2,7 +2,7 @@
 - 👀 I’m interested in softWare Engineering
 - 🌱 I’m currently learning software Engineering
 - 💞️ I’m looking to collaborate on software engineering
-- 📫 How to reach
+- 📫 you can reach me through my email; infinitymayor5@gmail.com
 
 
 <!---
